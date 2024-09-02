@@ -15,7 +15,7 @@
 
  - [安卓手機下載連結](https://play.google.com/store/apps/details?id=com.jarvislin.producepricechecker)
 
- - 蘋果手機下載連結
+ - [蘋果手機下載連結](https://apps.apple.com/us/app/%E8%94%AC%E6%9E%9C%E8%8A%B1%E5%8D%89%E8%A1%8C%E6%83%85%E7%AB%99-%E6%9C%80%E6%96%B0%E5%B8%82%E5%A0%B4%E4%BA%A4%E6%98%93%E8%A1%8C%E6%83%85-%E6%AD%B7%E5%8F%B2%E5%83%B9%E6%A0%BC-%E8%A1%8C%E6%83%85%E8%B6%A8%E5%8B%A2/id6661027883)
 
 ## 備註
 
